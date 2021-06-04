@@ -5,6 +5,6 @@
 - 👯 I’m looking to acquire an internship or an entry-level position in software development.
 - 🤔 I’m looking for help with any of the above.
 - 💬 Ask me about my favorite programming languages, my passion for science and my experience mentoring.
-- 📫 How to reach me: https://www.linkedin.com/in/georgevargas24/
+- 📫 How to reach me: George.Vargas24@yahoo.com
 - 😄 Pronouns: He/Him.
 - ⚡ Fun fact: I know Spanish.
